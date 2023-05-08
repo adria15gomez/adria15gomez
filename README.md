@@ -1,5 +1,5 @@
 # 💫 About Me:
-Apasionada del desarrollo web, aprendiendo tecnologías y técnicas que permitan mejorar mis habilidades. La experiencia de trabajo en equipo, me ha permitido desarrollar mis habilidades de comunicación y resolución de problemas, aunado a mi disposición para ayudar y colaborar, en lo que sea necesario. Caminando siempre hacia el éxito constante.
+Soy una profesional entusiasta, comunicativa y analítica. Trabajar en equipo me ha enseñado la importancia de liderar con el ejemplo y de adaptarme a diferentes situaciones para lograr los objetivos. Me enfoco por mantenerme actualizada en el campo de la tecnología, aprendiendo nuevas habilidades y herramientas a través de cursos. Mi objetivo es seguir creciendo estoy ansiosa por enfrentar nuevos desafíos y oportunidades de en el futuro.
 
 
 ## 🌐 Socials:
