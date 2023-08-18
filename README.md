@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy una profesional entusiasta, comunicativa y analítica. Trabajar en equipo me ha enseñado la importancia de liderar con el ejemplo y de adaptarme a diferentes situaciones para lograr los objetivos. Me enfoco por mantenerme actualizada en el campo de la tecnología, aprendiendo nuevas habilidades y herramientas a través de cursos. Mi objetivo es seguir creciendo estoy ansiosa por enfrentar nuevos desafíos y oportunidades de en el futuro.
+Me sumerjo en una nueva experiencia de vida que me motiva a aplicar mis habilidades de administración de recursos humanos en entornos dinámicos y colaborativos. Siempre estoy buscando nuevas herramientas para perfeccionar mi desempeño y adentrarme en proyectos apasionantes. AWS, es uno de ellos, convencida de generar impacto positivo en el equipo y la organización. La comunicación, el análisis y el entusiasmo me permiten marcar la diferencia en el mundo laboral.
 
 
 ## 🌐 Socials:
